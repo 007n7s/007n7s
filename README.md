@@ -1,21 +1,20 @@
 <p align="center">
-<img src="https://files.catbox.moe/op8t9n.png" alt="Alt Text" width="400" height="300"><br/>
+  <sub><sup>"this is my stupid boyfriend! he is always doing things for me!"</sub></sup><br/>
+<img src="https://files.catbox.moe/o1vg5t.png" alt="fagslop ewww" width="400" height="330"><br/>
   <br/>
-<sub><sup>" i can't take the pressure! yeah, everybody thinks that you just need to grow up. i know it's hard, it's fucking impossible! tryna make sense of the things that you feel now!" </sub></sup><br />
+<sub><sup>"hes smart, and sweet, and clever! he reads and writes me poetry!"</sub></sup><br/>
   <br/>
-basic info errmm hi. im 7n7 or kasper, but you might hear my close friends call me kelsey.<br/>
-  this is... just for my ponytown dweeb shit. i know i know lame whatever throw<br/>
-  tomatoes at me! im lame and weird sure sure.<br/>
-  <br/>
-  im 20 and im a huge roblox autist. i love roblox. its my special interest and has been since 2009!<br/>
-  ive had multiple accounts here and there, a lot of them being terminated... including my current one for a bit LOL<br/>
-  <br/>
-  ponytown info! ummm i dont mind if people sit with me or whatever its called. i think its c+h but idk.. i might be wrong.<br/>
-  id rather ppl not copy my ponies, but you can take slight inspo from them i guess.<br/>
-  i insta hide anyone who i think is weird or odd, this includes proshippers n stuff... like that..
+this is for ponytown ! i know i know, CRINGE!!! <br/>
 <br/>
+  ✶◟007n7 , or kasper . . . but you might hear my close friends call me kelsey ╮<br/>
+  20ʸᵒ transfem dude, any pronouns except they<br/>
+  schizo-tistic cptsd haver ╱ personality depends on the day (`﹏ ‘)<br/>
+  <sub><sup>(i try to be nice anyways!)</sub></sup><br/>
   <br/>
-  um. links to other places im at... i dunno man im not good at doing this kind of stuff.<br/>
-  <sub><sup>i reccomend checking out my rentry first n going 2 my main. yeah. yeah ok</sub></sup><br />
+    feel free 2 come up and say hi! i might be nervous at first tho so, sorry! U_U<br/>
+    please read my rentry! lol!<br/>
+    <br/>
+    <img src="https://files.catbox.moe/eu1fpc.png" alt="aweosme fucking beans" width="120" height="70"><br/>
+  um. links to other places im at! i dunno man im not good at doing this kind of stuff.<br/>
   <a href="https://rentry.co/gravitycoils">rentry directory</a> , <a href="https://www.roblox.com/users/222076093/profile">roblox</a> , <a href="https://pronouns.cc/@c00lgui">pronouns cc</a> , <a href="https://x.com/baikalseallover">twt</a>
 </p>
