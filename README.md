@@ -7,7 +7,7 @@
 this is for ponytown ! i know i know, CRINGE!!! <br/>
 <br/>
   ✶◟007n7 , or kasper . . . but you might hear my close friends call me kelsey ╮<br/>
-  20ʸᵒ transfem dude, any pronouns except they<br/>
+  21ʸᵒ transfem dude, any pronouns except they<br/>
   schizo-tistic cptsd haver ╱ personality depends on the day (`﹏ ‘)<br/>
   <sub><sup>(i try to be nice anyways!)</sub></sup><br/>
   <br/>
