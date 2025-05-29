@@ -11,5 +11,5 @@
     DONT BE WEIRD / SEXUAL TOWARDS ME IN GAME . I'M A GROWN ASS MAN<br/>
     I DON'T ROLEPLAY . DO NOT TRY AND RP WITH ME<br/>
     <br/>
-  <a href="https://rentry.co/seiidirectory">RENTRY DIRECTORY</a> , <a href="https://www.roblox.com/users/222076093/profile">ROBLOX</a> , <a href="https://pronouns.cc/@c00lgui">PRONOUNS CC</a>
+  <a href="https://rentry.co/drakobloxxers">DNI</a> , <a href="https://www.roblox.com/users/222076093/profile">ROBLOX</a> , <a href="https://pronouns.cc/@c00lgui">PRONOUNS CC</a>
 </p>
