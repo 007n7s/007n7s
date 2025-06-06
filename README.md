@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/3q87gz.png" alt="FAGGOT" width="400" height="390"><br/>
+<img src="https://files.catbox.moe/18cwik.png" alt="FAGGOT" width="450" height="366"><br/>
   <br/>
   <br/>
 <br/>
